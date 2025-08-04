@@ -1,5 +1,2 @@
-![image](https://cdn.discordapp.com/attachments/1307325257912291329/1390397414715953334/pony-town-jinu-stand-padded-4x.png?ex=6870adc0&is=686f5c40&hm=76b134d41ace6ada2b81bfe03aeacef5571e1b78f6298a0c042569d729a6c663&)
-
-![image](https://cdn.discordapp.com/attachments/1380159035743141918/1390373241109086358/Screenshot_20250704-004631_Chrome.jpg?ex=6870973c&is=686f45bc&hm=1d9395a6d5c4e8265b9a9785638362f5e19d14945d2fd8e98a09bf4522333bb1&)
-![image](https://cdn.discordapp.com/attachments/1380159035743141918/1390373224151515296/Screenshot_20250704-004617_Chrome.jpg?ex=68709738&is=686f45b8&hm=221d908c2c7cb4eed1cb659eff4c63f27d9d6dcfd392d911ec54822d881cfa49&)
-![image](https://cdn.discordapp.com/attachments/1380159035743141918/1390372555784978563/Screenshot_20250630-184037_Chrome.jpg?ex=686804d9&is=6866b359&hm=7f7da96090ab11f5a384d784809ae70616add265291874d6607f353a1c2c3b80&)
+hi sign my straw :(
+straw.page/ivangaze :(
