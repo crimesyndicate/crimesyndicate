@@ -1,2 +1,2 @@
 hi sign my straw :(
-[straw.page/ivangaze](https://straw.page/ivangaze) :(
+[straw.page/ivangaze](https://ivangaze.straw.page) :(
