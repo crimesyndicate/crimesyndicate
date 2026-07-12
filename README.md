@@ -1,5 +1,5 @@
 <div align="center">
-  <img src="https://imgbb.virdigi.com/i/87969942-2a1e-45e4-bce8-88e8ae463616.png">
+<img src="https://imgbb.virdigi.com/i/20fccf80-ea52-4214-a415-c05b5c7879ae.png" alt="awtysm">
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=rlner2ct158a0nws4aerzurte&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=3c4f39&bar_color_cover=true">
