@@ -2,7 +2,7 @@
 <img src="https://imgbb.virdigi.com/i/450f2464-ed8f-46b8-9e69-d06dec4b3c99.png">
 <p align="center">
 
-me (seme) vs [THE tsundere uke](https://github.com/alternatill)
+me (seme) vs THE [tsundere uke](https://github.com/alternatill)
   
  <p align="center">
    
